@@ -11,3 +11,6 @@
 2. Se mezcla bien la masa con sus condimentos y se hace una base tamaño medio.
 3. Despues de que el contenido trifasico haya absorbido los aliños, se mete dentro de la masa cubriendo por completo.
 4. Por ultimo, se envuelve en hoja de arbol de platano niño y se amarra sin dejar espacios al aire.
+Verter agua sufiente en una olla y poner el tamal
+Dejar en fuego medio durante 45 minutos y retirar
+Retirar las hojas y a jartar
