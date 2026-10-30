@@ -14,3 +14,4 @@
 Verter agua sufiente en una olla y poner el tamal
 Dejar en fuego medio durante 45 minutos y retirar
 Retirar las hojas y a jartar
+Tiempo total: 12 horas del contenido en la nevera + 45 minutos de cocción + preparacion = 13 horas
